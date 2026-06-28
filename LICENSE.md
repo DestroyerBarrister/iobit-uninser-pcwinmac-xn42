@@ -1,4 +1,4 @@
-# 
+# Turbo IObit Uninstaller templates for Mac OS | Elite IObit Uninstaller templates for PC Windows. Featuring power management and auto-startup management — optimized for maximum performance on every platform.
 
 
 
